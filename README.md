@@ -1,1 +1,1 @@
-My first readme
+divine fredrick first Readme
